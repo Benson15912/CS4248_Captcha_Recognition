@@ -1,1 +1,1 @@
-![Poster](https://github.com/user-attachments/assets/e336837c-bb8e-422b-a385-e004aa3bf9eb)
+![CS4243 Poster](https://github.com/user-attachments/assets/b08494b3-1882-417a-8a85-e378588b5596)
